@@ -1,1 +1,1 @@
-# kichfed
+https://Fedorkich.github.io/kichfed/
